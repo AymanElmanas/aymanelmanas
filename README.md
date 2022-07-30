@@ -29,7 +29,7 @@
 
 - 📫 How to reach me [Linkedin](https://www.linkedin.com/in/ayman94/)
 
-- 📄 Know about my experiences [here](https://docs.google.com/document/d/1u5g3ltP9UuzLDA9c-K9vGosean43avqH/edit?usp=sharing&ouid=103775913327446639103&rtpof=true&sd=true)
+- 📄 Know about my experiences [here](https://docs.google.com/document/d/1Ldfna0yyPi6KBVDecnpg-CnbCCYA5_hAlHPehrTaYbU/edit?usp=sharing)
 
 
 <br/>
